@@ -8,7 +8,7 @@ if you for some reason want to use these things, here'se where I got them from.
 - cross 'pixels' - myself
 - cutesy blooming stuff - some gif place; me forgor :> 
 - Christian scriptures - myself 
--'I love the LORD Jesus Christ' (a nice thing for hackers to know and for me to remember) - myself
+- 'I love the LORD Jesus Christ' (a nice thing for hackers to know and for me to remember) - myself
 
 you're like, free to use these things, just like, make sure to next time, yk, like, go here like like?
 Jesus loves you!
